@@ -3,4 +3,4 @@ Les règles sont simples, vous avez 2 minutes pour terminer le jeu.
 
 Ah oui j'ai dit absurde? Il y a des pièges et des inconvéniants. Vous allez adorer me detester. 
 
-Godd game
+Good game
